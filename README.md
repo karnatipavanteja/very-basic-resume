@@ -1,1 +1,1 @@
-# very-basic-resume
+https://karnatipavanteja.github.io/very-basic-resume/
